@@ -2,7 +2,7 @@
 - 👀 I’m interested in shotas
 - 🌱 I’m currently learning how to shove things up me bum
 - 💞️ I’m looking to collaborate on My Masterpiece UACDR
-- 📫 How to reach me killall@nigge.rs
+- 📫 How to reach me 
 
 <!---
 JimFlannigan1087/JimFlannigan1087 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
